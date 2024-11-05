@@ -112,9 +112,9 @@ Experienced Software Developer with a proven ability to bring technical expertis
 
 ## 🌐 Social Links
 
-- **LinkedIn**: [LinkedIn Profile](https://www.linkedin.com/in/osama-maher-arafa)
-- **GitHub**: [GitHub Profile](https://github.com/osamamaher)
-- **Facebook**: [Facebook Profile](https://facebook.com/osamamaher)
+- **LinkedIn**: [LinkedIn Profile](https://www.linkedin.com/in/osama-arafa)
+- **GitHub**: [GitHub Profile]([https://github.com/osamarafa1994](https://github.com/osamarafa1994))
+- **Facebook**: [Facebook Profile](https://m.facebook.com/osama.arafa.391/)
 
 ---
 
